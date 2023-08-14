@@ -99,7 +99,7 @@ During this training, I developed a simple inventory database for capturing deta
 
 CERTIFICATIONS & SKILLS
 •	Certified Project Management Professional (PMP) - #2874045
-•	Certified Cloud Practitioner - in view
+•	Certified Cloud Practitioner
 
 
 EDUCATION
