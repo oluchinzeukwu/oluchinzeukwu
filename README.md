@@ -1,5 +1,5 @@
-NZEUKWU OLUCHI OBIOMA
-linkedin.com/oluchi-nzeukwu   ||  +234 803 5553 324   ||   Oluchi.Nzeukwu@gmail.com
+NZEUKWU Oluchi
+|| linkedin.com/oluchi-nzeukwu   ||  +234 803 5553 324   ||   Oluchi.Nzeukwu@gmail.com
 
 
 PROFILE
